@@ -1,2 +1,2 @@
 # salmamumin123.github.io
-salma mumin 9th grader
+Hi my name is Salma and I am a freshmen at Crawford High School.
